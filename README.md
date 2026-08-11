@@ -4,5 +4,5 @@
 
 <p align="center">
   <a href="https://sushie.straw.page/">straw</a> ·
-  <a href="https://www.pinterest.comb/dearyoungerme0/">pint</a> ·
+  <a href="https://www.pinterest.com/dearyoungerme0/">pin</a> ·
   
